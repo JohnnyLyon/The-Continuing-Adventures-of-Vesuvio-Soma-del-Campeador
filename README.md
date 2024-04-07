@@ -1,4 +1,4 @@
-# The-Continuing-Adventures-of-Vesuvius-del-Campeador
+# The-Continuing-Adventures-of-Vesuvio-"Soma"-del-Campeador
 
 * anger issues when young, was skinny and had volatile fire powers and glowing red skin like lava.
 * because of his quick temper, often got into fights and either almost/did melt a kid for some slight
