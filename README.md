@@ -33,6 +33,7 @@ Timeline
 | 18.1 | Soma unlocks the gate of metal |
 | 18.2 | Soma gets Spirithaven U admission letter |
 | 19 | Soma enrolls in Spirithaven U |
+--------------
 
 In his application to Spirithaven University, Soma would want to highlight his saving the people of Suretai from the volcano's eruption, and not attach himself to Cid very much. He wants to get in on his own merit, and is well aware that he has greatly benefited from Cid's money, fame, and status all of his life.
 
