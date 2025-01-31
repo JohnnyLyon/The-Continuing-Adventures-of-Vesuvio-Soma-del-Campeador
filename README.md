@@ -20,6 +20,9 @@ Milos is a tall Azarketi with a sphere of water for a head. He is a master hydro
 
 He's a calm and levelheaded guy, and his relationship with the water is very deep, causing him to often teach his students with water-related metaphors. Soma remembers one instance of this from when he first arrived on the island. Milos taught him that brute force, which had previously been Soma's main tactic, would get him nowhere when the weight of the universe was against him. In Milos's own words, "swimming against the current will get you nowhere, man. All of existence has a flow; There is a direction and momentum to the way things happen. If you learn to get a sense of the flow and move accordingly, you'll find a lot more opportunities to accomplish your goal." Milos also taught Soma not to dwell on past mistakes, because it would only weigh him down. "Forgiveness is key, as the tides of time wash away all sins. The past is gone, obscured by the changing face of the sea. The only thing that matters is the waves that are coming at you now." Milos also forced Soma to survive on his own in the wilderness of the island, so he could cool down and come to app4eciate the slow things. 
 
+After quelling the volcano, Soma began to visit his namesake regularly, venturing inside it and exploring its inside on many occasions. On one such trip, he found a dwelling place deep inside, where he encountered a woman made of stone. He never found out whether she was a genie or a kineticist, but she was clearly powerful. Her entire body was wrought of earth and metal, with hair of silver filament, and eyes of diamond. She called herself Galatea, and commended Soma for 
+
+
 Timeline 
 --------------
 | Age | Event|
